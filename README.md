@@ -21,7 +21,7 @@ https://www.youtube.com/watch?v=4YvlTVR4zAw
 
 ```
 pushing bounds, wanna breach all lies
-what is worth that kind of life (to you)
+what is worth that kind of life to you
 droning into peace of mind
 before it collapses into fights
 just so you know I wanted what was right
