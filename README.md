@@ -30,6 +30,8 @@ i need it to feel it
 
 pushin past all my  lies
 
+you and i 
+
 ```
 
 ## Lyrics Testing Ground
