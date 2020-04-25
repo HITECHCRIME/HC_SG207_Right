@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Right
 
 **Listen now:** 
 
@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=4YvlTVR4zAw
 
 **Title:**  / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** Tenjin / **Lyrics:** 
 
 **Narrative Design:**
 
