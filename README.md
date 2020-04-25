@@ -7,7 +7,7 @@
 ## Project Data
 
 Description.
-
+https://www.youtube.com/watch?v=4YvlTVR4zAw
 
 **Title:**  / **Featuring:** 
 
@@ -20,7 +20,15 @@ Description.
 ## Lyrics
 
 ```
+pushing bounds, wanna breach all lies
+what is worth that kind of life (to you)
+droning into peace of mind
+before it collapses into fights
+just so you know I wanted what was right
+i need it to feel it
+i need it to feel it
 
+pushin past all my  lies
 
 ```
 
